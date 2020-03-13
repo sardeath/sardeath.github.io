@@ -11,7 +11,7 @@ https://www.mediafire.com/file/6v44ae0lii25tac/Dreamcatche-EN-320-K2N-full.7z/fi
 https://imagizer.imageshack.com/v2/800x600q90/924/0J73tc.jpg
 
 ---------------------------
-**Manani Numakura**
+**Manani Numakura – Minna de!**
 https://nyaa.si/download/1228574.torrent
 
 https://vgmdb.net/album/93184
