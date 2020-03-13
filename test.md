@@ -1,17 +1,23 @@
-**Ahiru 22**
-https://www61.zippyshare.com/v/iLnH7a6s/file.html
-https://www120.zippyshare.com/v/ckofbtYR/file.html
+**ITZY**
+https://www.mediafire.com/file/8c5rwfbfrjtygy2/ITZY_-_IT%2527z_ME_%2528iTunes_Plus%2529_%255Bwww.k2nblog.com%255D.7z/file
 
-**Phantasy**
-https://www1.zippyshare.com/v/pVpfaiYn/file.html
-https://www33.zippyshare.com/v/yiyLUE9D/file.html
 
-**Magia Record**
-https://www120.zippyshare.com/v/D0hLhmNA/file.html
-https://www106.zippyshare.com/v/VTIhlPw3/file.html
+https://imagizer.imageshack.com/img923/5931/c4gPQy.jpg
 
-**Orphen**
-https://www16.zippyshare.com/v/anvSTIa2/file.html
-https://www98.zippyshare.com/v/NEAR6Qlr/file.html
-https://www16.zippyshare.com/v/gZd8KX0h/file.html
-https://www98.zippyshare.com/v/khEgFfgo/file.html
+
+**Dreamcatcher**
+https://www.mediafire.com/file/6v44ae0lii25tac/Dreamcatche-EN-320-K2N-full.7z/file
+
+https://imagizer.imageshack.com/v2/800x600q90/924/0J73tc.jpg
+
+
+**Manani Numakura**
+https://nyaa.si/download/1228574.torrent
+
+https://vgmdb.net/album/93184
+
+VTZL-168
+
+https://numakuramanami.com/images/minnade/pc.jpg
+
+https://images-na.ssl-images-amazon.com/images/I/41RdZ9Lup5L._SY500_.jpg
