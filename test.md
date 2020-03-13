@@ -16,8 +16,17 @@ https://nyaa.si/download/1228574.torrent
 
 https://vgmdb.net/album/93184
 
-VTZL-168
+*VTZL-168*
 
 https://numakuramanami.com/images/minnade/pc.jpg
 
 https://images-na.ssl-images-amazon.com/images/I/41RdZ9Lup5L._SY500_.jpg
+
+-----------------------------
+**i☆Ris – Shall we☆Carnival (4th Album)**
+
+https://nyaa.si/download/1228611.torrent
+
+https://vgmdb.net/album/93166
+
+*EYCA-12849*
