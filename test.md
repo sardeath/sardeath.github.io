@@ -4,13 +4,13 @@ https://www.mediafire.com/file/8c5rwfbfrjtygy2/ITZY_-_IT%2527z_ME_%2528iTunes_Pl
 
 https://imagizer.imageshack.com/img923/5931/c4gPQy.jpg
 
-
+--------------------------
 **Dreamcatcher**
 https://www.mediafire.com/file/6v44ae0lii25tac/Dreamcatche-EN-320-K2N-full.7z/file
 
 https://imagizer.imageshack.com/v2/800x600q90/924/0J73tc.jpg
 
-
+---------------------------
 **Manani Numakura**
 https://nyaa.si/download/1228574.torrent
 
