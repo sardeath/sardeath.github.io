@@ -17,8 +17,15 @@ https://nyaa.si/download/1229679.torrent
 11. Walk on your side
 
 ---------------------------
-Hello, Happy World! – Niko × Niko ＝ Hyper Smile Power! (6th Single)
+**Hello, Happy World! – Niko × Niko ＝ Hyper Smile Power! (6th Single)**
 
 https://nyaa.si/download/1229681.torrent
 
 *BRMM-10244*
+
+---------------------------
+**THE IDOLM@STER CINDERELLA GIRLS STARLIGHT MASTER 37 Needle Light**
+
+https://nyaa.si/download/1229690.torrent
+
+*COCC-17527*
