@@ -29,3 +29,10 @@ https://nyaa.si/download/1229681.torrent
 https://nyaa.si/download/1229690.torrent
 
 *COCC-17527*
+
+----------------------------
+**Nekopara Sound Collection Album**
+
+https://nyaa.si/download/1229697.torrent
+
+*EYCA-12808*
