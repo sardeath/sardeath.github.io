@@ -1,4 +1,4 @@
-**22/7 – Boku wa Sonzai Shiteinakatta (Single)**
+**22／7 – Boku wa Sonzai Shiteinakatta (Single)**
 
 *SRCL-9520-1*
 
