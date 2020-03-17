@@ -36,3 +36,10 @@ https://nyaa.si/download/1229690.torrent
 https://nyaa.si/download/1229697.torrent
 
 *EYCA-12808*
+
+-----------------------------
+**SHOW BY ROCK!! Mashumairesh!! ORIGINAL SOUNDTRACK**
+
+https://nyaa.si/download/1229728.torrent
+
+*PCCG-01881*
