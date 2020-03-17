@@ -15,3 +15,10 @@ https://nyaa.si/download/1229679.torrent
 09. Senritsu no Ito	
 10. Campanula	
 11. Walk on your side
+
+---------------------------
+Hello, Happy World! – Niko × Niko ＝ Hyper Smile Power! (6th Single)
+
+https://nyaa.si/download/1229681.torrent
+
+*BRMM-10244*
