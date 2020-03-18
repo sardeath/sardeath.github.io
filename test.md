@@ -22,3 +22,6 @@ https://nyaa.si/download/1229728.torrent
 **Maaya Uchida – No Scenario (10th Single)**
 
 *PCCG-70472*
+
+-------------------------------
+**Luna Haruna – PEACE!!! (Single)**
