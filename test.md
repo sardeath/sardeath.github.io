@@ -1,51 +1,12 @@
-**nano**
+**Maiko Fujita – necessary (5th Album)**
 
-*VTCL-60519-20*
+*VICL-65346*
 
--------------------
-**Disc 1**
+https://nyaa.si/download/1230462.torrent
 
-01	Now or Never
+------------------------------------
+**AKB48 – Shitsuren, Arigatou (57th Single)**
 
-02	No pain, No game
+https://nyaa.si/download/1230516.torrent
 
-03	SAVIOR OF SONG
-
-04	Born to be
-
-05	INFINITY≠ZERO
-
-06	SABLE
-
-07	Bull's Eye
-
-08	DREAMCATCHER
-
-09	MY LIBERATION
-
-10	PARAISO
-
-11	Utsushiyo no Yume
-
-12	Star light, Star bright
-
-13	KEMURIKUSA
-
---------------------
-**Disc 2**
-
-01	neophobia
-
-02	Nevereverland
-
-03	Rock on.
-
-04	The Crossing
-
-05	INSIDE MY CORE
-
-06	Loki
-
-07	ECHO
-
-08	magenta (BEST ALBUM ver.)
+https://www.generasia.com/wiki/Shitsuren,_Arigatou
