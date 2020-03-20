@@ -7,6 +7,8 @@ https://nyaa.si/download/1230462.torrent
 ------------------------------------
 **AKB48 – Shitsuren, Arigatou (57th Single)**
 
+*KIZM-90659-60*
+
 https://nyaa.si/download/1230516.torrent
 
 https://www.generasia.com/wiki/Shitsuren,_Arigatou
