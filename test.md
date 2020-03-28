@@ -41,3 +41,10 @@ LACA-15817
 https://nyaa.si/download/1231962.torrent
 
 -------------------
+**Heya Camp △ Original Soundtrack**
+
+USSW-0245
+
+https://nyaa.si/download/1231977.torrent
+
+-------------------
