@@ -1,12 +1,19 @@
-**Saori Hayami – Sister Cities (Mini Album)**
+**Koisuru Asteroid Sound Collection**
 
-*LACM-14951*
+VTCL-60521
 
-https://nyaa.si/download/1231710.torrent
+https://nyaa.si/download/1231779.torrent
 
----------------------
-**Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. SoundTrack**
+----------------
+**NieR Orchestral Arrangement Album - Addendum**
 
-*USSW-0244*
+SQEX-10765
 
-https://nyaa.si/download/1231758.torrent
+https://nyaa.si/download/1231939.torrent
+
+----------------
+Emi Nitta – Sing Ring (6th Single)
+
+XNST-10021
+
+https://nyaa.si/download/1231950.torrent
