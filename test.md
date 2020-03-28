@@ -48,3 +48,17 @@ USSW-0245
 https://nyaa.si/download/1231977.torrent
 
 -------------------
+**THE IDOLM@STER CINDERELLA GIRLS STARLIGHT MASTER for the NEXT! 06 Shiawase no Rule**
+
+COCC-17706
+
+https://nyaa.si/download/1231998.torrent
+
+-------------------
+THE IDOLM@STER MILLION THE@TER WAVE 07 Jus-2-Mint
+
+LACM-14897
+
+https://nyaa.si/download/1232829.torrent
+
+-----------------
