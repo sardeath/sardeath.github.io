@@ -4,7 +4,8 @@
   </a>
 </p>
 
-<h1 align="center">[OneDrive Directory Index Project](https://drive.pranata.my.id)</h1>
+<h1 align="center">OneDrive Directory Index Project</h1>
+<h4 align="center">https://drive.pranata.my.id</h4>
 ### 关于OneDrive：
 *  实际测试：国内上传平均50Mbps/下载3~15Mbps）100Mbps=12.5Mb/s
 *  搭配[SSTAP代理](https://wy2048.com/auth/register?code=vAUK)，国外下载可达300Mbps,本地200M带宽可跑满
