@@ -14,7 +14,7 @@
 
 +++
 
-### Contact :
+### Other :
 
 **✉️ Email:** [_apranata@student.sierracollege.edu_](mailto:apranata@student.sierracollege.edu)
 
