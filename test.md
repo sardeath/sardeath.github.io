@@ -18,7 +18,7 @@
 
 **✉️ Email:** [_apranata@student.sierracollege.edu_](mailto:apranata@student.sierracollege.edu)
 
-**🌍 Blog:** [_https://pranata.my.id_](https://pranata.my.id)
+**🌍 Blog:** [_https://pranata.my.id_](https://pranata.my.id/)
 
 <p align="center">
   Powered by <a href="https://pranata.my.id/">Andri Pranata (st4zz)</a>
